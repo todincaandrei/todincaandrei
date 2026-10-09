@@ -1,1 +1,1 @@
-### Hello, I'm Andrei Raul Todinca! 👋
+### Hello, I'm Andrei Todinca! 👋
